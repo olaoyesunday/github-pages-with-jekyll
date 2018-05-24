@@ -1,3 +1,8 @@
+---
+title: "The Millennium"
+date: 2018-05-25
+---
+
 # The Millennium
 For one Thousand Years there was peace. The world loved the Jews. People loved one another. The earth had lived in peace, love, and in accordance with the Word of God.
 For one Thousand Years the evil and accusing thoughts that people normally have nearly all disappeared. The thoughts people have of rebellion and stubbornness against God virtually did not exist; these should never have come into their minds.
